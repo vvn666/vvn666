@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @vvn666
+- 👀 I’m interested in Java, Rust, C, C++, C#
+- 🌱 I’m currently learning Rust, C++, C#
+- 💞️ I’m looking to collaborate on nothing tbh
+- 📫 How to reach me: @thonged on Discord
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I am a diehard Kanye stan!
